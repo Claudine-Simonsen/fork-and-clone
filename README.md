@@ -6,3 +6,9 @@ My favorite ice cream flavors:
 
 - Peppermint Stick
 - Mint
+
+
+Claudine's Favorite
+
+- Burnt Almond Fudge
+- Mint Chocolate Chip
